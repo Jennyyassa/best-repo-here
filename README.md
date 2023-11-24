@@ -1,3 +1,3 @@
 # best-repo-here
 
-hello friday
+hello monday good day
